@@ -16,7 +16,7 @@ T3ddy é um dos youtubers que assisto há mais tempo <3! Com vídeos diversos, e
 ### 2.: ✈️ *[Midori](https://www.youtube.com/@MidoriThais)*
 A Thais Midori faz vlogs de viagem em países da Ásia, já que agora possui uma empresa de turismo. É uma das minhas favoritas desde 2018, quando fez seu primeiro intercâmbio para a Coreia do Sul. É um canal muito divertido para quem deseja conhecer países asiáticos e curiosidades sobre intercâmbios. 
 
-### 3. 💚: *[Os barbixas](https://www.youtube.com/@ciabarbixas)*
+### 3.: 🧔‍♂️ *[Os barbixas](https://www.youtube.com/@ciabarbixas)*
 Um canal de Stand up de três amigos, onde sempre há um convidado completando o grupo. 
 
 
@@ -26,11 +26,24 @@ Um canal de Stand up de três amigos, onde sempre há um convidado completando o
 
 </div> 
 
-### 4. 🧡: Tarō Kabakura
-Namorado da Koyanagi, chefe do departamento. Acaba se aproximando de Hirotaka e Narumi, junto à namorada e também é otaku, apesar de ser o que menos se orgulha disso. Só vai em eventos de mangás para acompanhar a namorada cosplayer.
+### 1. 🎥: *[O poço](https://www.netflix.com/br/title/81128579)*
+<div align="center">
 
-### 5. 🤎: Kō Sakuragi
-Uma garota extremamente tímida que é confundida com um garoto devido ao corte de cabelo por Naoya. Também é otaku-gamer e interage com os protagonistas em alguns episódios.
+<img src="https://jornalpredio3.com/wp-content/uploads/2020/03/o-poc3a7o.jpg?w=426">
 
-### 6. 💛: Naoya Nifuji
-Irmão mais novo do Hirotaka, Nifuji é o único não otaku da trama. Sorridente e extrovertido, é 100% o oposto do irmão, mas se dá muito bem com Narumi devido à infância dos três. 
+</div>
+
+### 2. 🎵: *[Da ponte pra cá](https://open.spotify.com/intl-pt/track/77ZXEJcwC7r4gfodNwERJz)*
+<div align="center">
+
+<img src="https://i.scdn.co/image/ab67616d0000b273497e68476e7062b1bf5ea83f">
+
+</div>
+
+### 3. 🎥: *[Parasita](https://www.max.com/br/pt/movies/parasita/d5e3be11-eb8b-449f-89cf-db887ddee777?utm_source=universal_search)*
+
+<div align="center">
+
+<img src="https://institutodecinema.com.br/img/Parasite.jpg">
+
+</div>
